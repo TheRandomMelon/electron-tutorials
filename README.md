@@ -15,7 +15,7 @@ Thanks for reading! Here's my social media:
 
 Website: [therandommelon.com](https://therandommelon.com)
 
-Twitter: [@RandomMelonYT](https://twitter.com/michaelwebbtrm)
+Twitter: [@michaelwebbtrm](https://twitter.com/michaelwebbtrm)
 
 YouTube: [TheRandomMelon](https://www.youtube.com/TheRandomMelon)
 
